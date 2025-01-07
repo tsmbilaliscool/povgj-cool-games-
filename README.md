@@ -1,2 +1,2 @@
 # povgj-cool-games-
-copy right strike inincluded
+copy right strike included
